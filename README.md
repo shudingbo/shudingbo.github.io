@@ -1,2 +1,2 @@
-# shudingbo.github.io
+# www.myslot.top
 My Pages
