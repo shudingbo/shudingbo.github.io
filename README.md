@@ -1,2 +1,2 @@
-# www.myslot.top
-My Pages
+# my.myslot.top
+[my.myslot.top](http://my.myslot.top);
